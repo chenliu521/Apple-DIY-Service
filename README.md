@@ -1,4 +1,5 @@
 # Apple-DIY-Service
+![apple.jpg](apple.jpg)
 ## Group Members
 Jerry Yang (tao)
 Qifeng Wu
