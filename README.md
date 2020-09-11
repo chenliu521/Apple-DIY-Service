@@ -57,7 +57,7 @@ Apple Store and www.apple.com Only
 No Substantial Discount
 $30 Gift Card during first month of launching
 
-
-
+## Presentation
+https://docs.google.com/presentation/d/15QpMlYZ_QUuwX_RV3_IW8CF8X2MT3uxbRX8fYbYcWeU/edit?usp=sharing
 
 
